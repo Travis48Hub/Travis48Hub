@@ -14,7 +14,6 @@ I’m a creator, writer, and digital entrepreneur building tools and services fo
 
 ## 🤝 Connect With Me
 
-📬 [Email Me](mailto:your@email.com)  
 💬 [WhatsApp](https://wa.me/27640669617)  
 
 ---
